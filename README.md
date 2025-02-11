@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Vinicius Alemida 😁
+## Bem-vindo(a) ao perfil do Vini Almeida Aguiar 😁
 
  <div>
    <a href="https://github.com/ViniAlmeid4">
